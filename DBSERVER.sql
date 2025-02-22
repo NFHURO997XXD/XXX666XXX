@@ -1,295 +1,366 @@
-https://dsc.telkomsel.co.id/:15000268:CuZ_/*Gj
-https://dsc.telkomsel.co.id/:muhammadkaf:[ @cloud_arthouse Subscrib  ArtHouse Cloud  2023   https://t.me/+hfTW5AYawTo4NGJi  or V70]
-https://dsc.telkomsel.co.id/:12007687:Taqg%%Um
-https://dsc.telkomsel.co.id 19234801:R1S*mA]#
-https://dsc.telkomsel.co.id/:17010377:Bismillah24!
-https://dsc.telkomsel.co.id 17010539:i9Et5De9
-dsc.telkomsel.co.id/:13010990:58x1UnJO
-https://dsc.telkomsel.co.id 14010770:209[bo5M
-https://dsc.telkomsel.co.id/:21366192:dbM^*^iq
-https://dsc.telkomsel.co.id/:yuliantini:Haji#012020
-https://dsc.telkomsel.co.id 17010864:oM=L*^$^
-https://dsc.telkomsel.co.id/:dumasia:Medan052019
-https://dsc.telkomsel.co.id/:17008666:Airgear1992#
-https://dsc.telkomsel.co.id./
-https://dsc.telkomsel.co.id 19231771:Bl%Z!/Mx
-https://dsc.telkomsel.co.id budiset:Mkw2020#11
-https://dsc.telkomsel.co.id/:17008376:!U%D=6*f
-https://dsc.telkomsel.co.id/:08009695:Bumi2020@
-https://dsc.telkomsel.co.id 18230467:guRg_*gF
-https://dsc.telkomsel.co.id/:18230626:Syalom99-
-https://dsc.telkomsel.co.id rudisir:Medan123
-dsc.telkomsel.co.id:19231614:!rWC_7%E
-https://dsc.telkomsel.co.id/:17010398:Paisces65*
-https://dsc.telkomsel.co.id 15010425:h$U#60=Y
-https://dsc.telkomsel.co.id:17011700:Jc8P9y/2
-https://dsc.telkomsel.co.id/:16008107:Aceh2020
-https://dsc.telkomsel.co.id 14013369:L5EbaUN3
-https://dsc.telkomsel.co.id/:20237710:/jR/1-qX
-https://dsc.telkomsel.co.id denypan:Rillo2020
-https://dsc.telkomsel.co.id/:mustafidauf:jXs1U87WB
-https://dsc.telkomsel.co.id/app/my-account/my-billing -:999999
-https://dsc.telkomsel.co.id/:17011631:QL1-e41f
-https://dsc.telkomsel.co.id/:18010371:7hT8dR0E
-https://dsc.telkomsel.co.id/:08010711:Moenk@070311
-https://dsc.telkomsel.co.id/:08010711:rDF#7%#k
-https://dsc.telkomsel.co.id/:18008899:z8M4zL+W
-dsc.telkomsel.co.id/:18010307:#hedewU8
-https://dsc.telkomsel.co.id:20235903:oR!w#^Qk
-https://dsc.telkomsel.co.id/:17008372:Siaga3600#
-dsc.telkomsel.co.id:14010770:$(G7e7G"
-https://dsc.telkomsel.co.id:dumasia:Medan2020#
-https://dsc.telkomsel.co.id/:19231558:X#8enusw
-https://dsc.telkomsel.co.id/:16009611:Nt+%1!Es
-https://dsc.telkomsel.co.id/:denypan:Rillo2020
-https://dsc.telkomsel.co.id/:denypan:Rillo2706
-dsc.telkomsel.co.id:17008457:DVIv++j@
-https://dsc.telkomsel.co.id UNKNOWN:18976735
-https://dsc.telkomsel.co.id/:17011548:Halo2019#
-https://dsc.telkomsel.co.id/:16013680:Qo~dQN5Qu
-https://dsc.telkomsel.co.id/:daraher:Medan0919
-https://dsc.telkomsel.co.id/:18008644:Tawakal@2020
-https://dsc.telkomsel.co.id/:19234087:ku7D,1|i
-https://dsc.telkomsel.co.id 18009428:{Sm10S~h
-https://dsc.telkomsel.co.id/:19234893:jZU5MH8W
-https://dsc.telkomsel.co.id 007057:H53r2"V8
-https://dsc.telkomsel.co.id 17009551:R%ec$!PO
-https://dsc.telkomsel.co.id 18009428:vp4I8t35
-https://dsc.telkomsel.co.id/app/my-account/my-billing akhmad_isnaedi_x@telkomsel.co.id:FullCream#2020
-https://dsc.telkomsel.co.id/:18011566:2p1@g+bK
-https://dsc.telkomsel.co.id/:Ayyaagu:Sama2019
-https://dsc.telkomsel.co.id 16012775:*6(k%()K
-https://dsc.telkomsel.co.id:17011631:QL1-e41f
-https://dsc.telkomsel.co.id/:15008244:x/I]F0+2
-https://dsc.telkomsel.co.id/:17008573:28Maiqha##
-https://dsc.telkomsel.co.id. 14013369:wwF6&4Y8
-https://dsc.telkomsel.co.id/:17011631:45688397
-https://dsc.telkomsel.co.id/:19231319:Fagaruda2020!
-https://dsc.telkomsel.co.id/:Andriannug:#Bandung06
-https://dsc.telkomsel.co.id/:17008322:464762
-https://dsc.telkomsel.co.id 20186267:f7#Guwre
-https://dsc.telkomsel.co.id 19232353:P%-L+!rR
-dsc.telkomsel.co.id/:15011550:1j\TFwZe
-https://dsc.telkomsel.co.id 16009731:vMGe/5%+
-https://dsc.telkomsel.co.id/agent/dashboard-agent:dodysup:Asdfg#01
-https://dsc.telkomsel.co.id/:19233675:Bismillah19
-https://dsc.telkomsel.co.id 12008453:[|lg7X67
-https://dsc.telkomsel.co.id 14013369:Qkb40M)8
-dsc.telkomsel.co.id/app/my-account/my-billing:f.rafdiansyah@yahoo.com:ryukialpha02
-https://dsc.telkomsel.co.id 18011502:mL~f55rG
-https://dsc.telkomsel.co.id/:17008946:/km%92#$
-https://dsc.telkomsel.co.id 17010679:3KGmdja6
-https://dsc.telkomsel.co.id 10011117:25335302
-07000843:Syahid#00:https://dsc.telkomsel.co.id
-https://dsc.telkomsel.co.id/:19233006:bidanPNS2021!
-https://dsc.telkomsel.co.id:ritaris:Banda123#
-https://dsc.telkomsel.co.id/:21189359:fPpv--mw
-https://dsc.telkomsel.co.id/:muhammadkaf:[UNKNOWN or V70]
-https://dsc.telkomsel.co.id 15000268:CuZ_/*Gj
-https://dsc.telkomsel.co.id 17008369:m*vc$/kO
-https://dsc.telkomsel.co.id/:18011971:Bulan0619
-https://dsc.telkomsel.co.id 15010425:+bt$4=YL
-https://dsc.telkomsel.co.id/:freddyjua:Harut3132#
-dsc.telkomsel.co.id:21189359:pRjE@/Rj
-https://dsc.telkomsel.co.id 19234842:36728200
-https://dsc.telkomsel.co.id/:17009977:Cuan2019@
-https://dsc.telkomsel.co.id 16013680:Qo~dQN5Qu
-https://dsc.telkomsel.co.id:18011354:MKt*2!Zj
-https://dsc.telkomsel.co.id/:desyhar:Balqis#012020
-https://dsc.telkomsel.co.id/:18010155:goingtotheUSA2019$$
-https://dsc.telkomsel.co.id/:16009609:Perwira-1
-https://dsc.telkomsel.co.id:19234554:W@k-6!CR
-dsc.telkomsel.co.id/:15009443:Jabar2006
-https://dsc.telkomsel.co.id/:19231939:Pegawaitetap21!
-https://dsc.telkomsel.co.id/:20237164:Cantikbgt21@
-https://dsc.telkomsel.co.id/:19231939:Kangenbudi21!
-https://dsc.telkomsel.co.id/:19233306:Andri08++
-https://dsc.telkomsel.co.id/:14009741:Abah2020++
-https://dsc.telkomsel.co.id/:19234842:36728200
-https://dsc.telkomsel.co.id/|doddysup|Zxcvb#01
-https://dsc.telkomsel.co.id/:pedrickpra:Bahagia2020@
-dsc.telkomsel.co.id:dumasia:Medan1919#
-https://dsc.telkomsel.co.id/:19231614:!rWC_7%E
-https://dsc.telkomsel.co.id:14008377:l\Zk0G7|
-dsc.telkomsel.co.id/app/my-account/my-billing:fhmy_rafdiansyah@yahoo.com:883930
-https://dsc.telkomsel.co.id/:20235905:Halal2021!
-https://dsc.telkomsel.co.id 15011221:8s98J9lo
-https://dsc.telkomsel.co.id 17010680:^w85/A=7
-https://dsc.telkomsel.co.id/:Ariesat:Pss_1234
-https://dsc.telkomsel.co.id 20236523:Jd77lQq1^
-dsc.telkomsel.co.id:zulkarnainnur:Qurban21
-https://dsc.telkomsel.co.id/:iimfat:Merdeka@2021
-https://dsc.telkomsel.co.id/:15008782:Choki#2020
-https://dsc.telkomsel.co.id 19234554:mwRh$#SO
-https://dsc.telkomsel.co.id/agent/dashboard-agent:16008107:Aceh2020
-https://dsc.telkomsel.co.id/:17010587:iUwf*9%Y
-https://dsc.telkomsel.co.id 16013028:=iV-=^Is
-https://dsc.telkomsel.co.id 005082:agMp#-Pb
-https://dsc.telkomsel.co.id asrilwar:Jul#2020
-https://dsc.telkomsel.co.id/:18010161:Bumilsehat2020!
-https://dsc.telkomsel.co.id/:17008720:NE5UR^Wte
-https://dsc.telkomsel.co.id/:mfiqransyah:Doaibu2020#
-https://dsc.telkomsel.co.id/:16013680:!Hvu@=Ud
-https://dsc.telkomsel.co.id denypan:Rillo2706
-https://dsc.telkomsel.co.id/:20237441:p@nji2029!
-https://dsc.telkomsel.co.id/:Mochamadasb:Muswe61ra
-https://dsc.telkomsel.co.id:19182486:Medan123
-https://dsc.telkomsel.co.id/:18008267:F#D7prEs
-https://dsc.telkomsel.co.id 17008720:NE5UR^Wte
-https://dsc.telkomsel.co.id 14010770:s7eH#wRE
-https://dsc.telkomsel.co.id/:19233006:lulusPNS2021!
-https://dsc.telkomsel.co.id/:21189359:vh/L*2-$
-https://dsc.telkomsel.co.id UNKNOWN:32152418
-https://dsc.telkomsel.co.id/:19231558:Samaakuajaya.
-dsc.telkomsel.co.id/:pututwal:Banjar122019#
-https://dsc.telkomsel.co.id:16008107:Aceh2020
-https://dsc.telkomsel.co.id heningres:Jun#2021
-https://dsc.telkomsel.co.id/:17012370:=IN\Xo4k
-https://dsc.telkomsel.co.id:Andriannug:#Bandung06
-https://dsc.telkomsel.co.id/drop-3/:19231939:Janjisuci2019!
-https://dsc.telkomsel.co.id/:20237441:p@nji2043!
-dsc.telkomsel.co.id:19183319:oxS$0-DB
-https://dsc.telkomsel.co.id/:admin:elgaragedj
-https://dsc.telkomsel.co.id/drop-3/:17008322:464762
-https://dsc.telkomsel.co.id 17008840:Jv2=G2bp
-https://dsc.telkomsel.co.id daraher:Medan0919
-https://dsc.telkomsel.co.id 8010711:Moenk@070311
-https://dsc.telkomsel.co.id/drop-3/:18010371:Bismillah06@
-https://dsc.telkomsel.co.id/:19233765:Ramadhan2020!
-https://dsc.telkomsel.co.id:UNKNOWN:50077850
-https://dsc.telkomsel.co.id/:16013028:=iV-=^Is
-https://dsc.telkomsel.co.id/:14008098:Z+^_5+R!
-https://dsc.telkomsel.co.id 18011354:MKt*2!Zj
-https://dsc.telkomsel.co.id 08010711:rDF#7%#k
-https://dsc.telkomsel.co.id/:18011442:Jdrn_201801#
-dsc.telkomsel.co.id:21189359:SUY//^Sz
-dsc.telkomsel.co.id/:17010774:Q$S!84%o
-https://dsc.telkomsel.co.id/:17012219:Linabarokah1$
-https://dsc.telkomsel.co.id/:20186267:f7#Guwre
-https://dsc.telkomsel.co.id 17010539:94195114
-https://dsc.telkomsel.co.id 16012401:IVdVR92~
-https://dsc.telkomsel.co.id/:evatam:Support#0819
-https://dsc.telkomsel.co.id/:15008244:Perso2016*
-https://dsc.telkomsel.co.id:budiset:Mkw#0321*
-https://dsc.telkomsel.co.id/:18008063:Iy#70,12
-dsc.telkomsel.co.id/:18008382:&3Dz89vs
-dsc.telkomsel.co.id/:32291461:pRjE@/Rj
-https://dsc.telkomsel.co.id/:19235340:0@.*D*yT
-https://dsc.telkomsel.co.id/:17008130:bTK!//OW
-https://dsc.telkomsel.co.id 17008130:9Qx!U4O8
-https://dsc.telkomsel.co.id ariesat:Pss_4321
-https://dsc.telkomsel.co.id/:18011565:BfA*0$B=
-dsc.telkomsel.co.id/:18009949:3Cin91tU
-https://dsc.telkomsel.co.id/:18009949:3Cin91tU
-https://dsc.telkomsel.co.id/:18010735:Auto@2020e
-https://dsc.telkomsel.co.id 14008098:Z+^_5+R!
-https://dsc.telkomsel.co.id/:17011485:{We?~y3E
-dsc.telkomsel.co.id/:Andriannug:#Bandung06
-https://dsc.telkomsel.co.id:16009609:Perwira-1
-dsc.telkomsel.co.id/:17001549:pzB0X0q~y
-dsc.telkomsel.co.id/:17008457:DVIv++j@
-https://dsc.telkomsel.co.id 08010711:PHlg#-K*
-https://dsc.telkomsel.co.id 19235180:/jqV^^mg
-https://dsc.telkomsel.co.id/:17008369:m*vc$/kO
-https://dsc.telkomsel.co.id 15010425:sYj#0/vU
-https://dsc.telkomsel.co.id Budiset:Mkw#0321*
-dsc.telkomsel.co.id:21189359:fPpv--mw
-https://dsc.telkomsel.co.id 14010770:$(G7e7G"
-https://dsc.telkomsel.co.id ritaris:Banda05#
-https://dsc.telkomsel.co.id/:15010425:sYj#0/vU
-https://dsc.telkomsel.co.id 08009695:Bumi2020@
-https://dsc.telkomsel.co.id/:19183996:Lita112233
-https://dsc.telkomsel.co.id:9121822:Moenk@181622
-https://dsc.telkomsel.co.id/:16009663:Jeruk1212
-https://dsc.telkomsel.co.id 16009609:Sekar-123
-https://dsc.telkomsel.co.id/:16009610:FullCream#2020
-https://dsc.telkomsel.co.id 17008376:!U%D=6*f
-https://dsc.telkomsel.co.id/:19233306:1IU2Fc3B
-https://dsc.telkomsel.co.id:16009886:Saya1975
-https://dsc.telkomsel.co.id/:doddysup:Zxcvb#01
-https://dsc.telkomsel.co.id/:007057:H53r2"V8
-https://dsc.telkomsel.co.id 15011888:Ags2020#
-https://dsc.telkomsel.co.id 8010711:rDF#7%#k
-https://dsc.telkomsel.co.id/:ritaris:Banda05#
-https://dsc.telkomsel.co.id/:08010711:PHlg#-K*
-dsc.telkomsel.co.id:21189359:JEtI_#P!
-7000600:Moenk@060200:https://dsc.telkomsel.co.id
-https://dsc.telkomsel.co.id/:15005993:Bahood*05
-https://dsc.telkomsel.co.id 19234893:jZU5MH8W
-https://dsc.telkomsel.co.id budiset:Mkw2020#05
-https://dsc.telkomsel.co.id/:rudisir:Medan#07
-https://dsc.telkomsel.co.id:18000003:Jg7U4470
-https://dsc.telkomsel.co.id/:pedrickpra:Bahagia2019
-https://dsc.telkomsel.co.id/:20237086:JehovahNissi88
-https://dsc.telkomsel.co.id 17011679:?~lgq5uL
-https://dsc.telkomsel.co.id 16013680:!Hvu@=Ud
-https://dsc.telkomsel.co.id/:iimfat:Milad@2024
-https://dsc.telkomsel.co.id 16009663:Jeruk1212
-https://dsc.telkomsel.co.id/:20186265:RZeline1102#*
-https://dsc.telkomsel.co.id:06007020:8Qx!U3O7
-dsc.telkomsel.co.id/:17010579:g9L46A7#
-http://dsc.telkomsel.co.id:29361218:@8W987Rs
-https://dsc.telkomsel.co.id/:17008130:9Qx!U4O8
-https://dsc.telkomsel.co.id/:002730:08375902
-dsc.telkomsel.co.id/:17010279:yV!N3"gm
-https://dsc.telkomsel.co.id UNKNOWN:56508630
-https://dsc.telkomsel.co.id 19231614:!rWC_7%E
-https://dsc.telkomsel.co.id/:17010154:halalkannisa21!
-https://dsc.telkomsel.co.id 14013369:frupr5#A
-https://dsc.telkomsel.co.id:16009681:Egypt#2018
-https://dsc.telkomsel.co.id/app/my-account/my-billing:akhmad_isnaedi_x@telkomsel.co.id:FullCream#2020
-https://dsc.telkomsel.co.id:8010711:rDF#7%#k
-https://dsc.telkomsel.co.id/app/my-account/my-billing:fhmy_rafdiansyah@yahoo.com:Agent1234
-https://dsc.telkomsel.co.id 20236039:L~Bb4K6Uo
-dsc.telkomsel.co.id/:17011631:45688397
-https://dsc.telkomsel.co.id:20235903пїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅпїЅid:gx_$4!aC
-https://dsc.telkomsel.co.id:5082:agMp#-Pb
-https://dsc.telkomsel.co.id Ariesat:Pss_1234
-https://dsc.telkomsel.co.id/agent/ticketorder/workflow-approval:19235173:28)iK6^s
-https://dsc.telkomsel.co.id/:12007687:dLy$6_SA
-https://dsc.telkomsel.co.id 002730:08375902
-dsc.telkomsel.co.id/:18010503:c7e,eH6"
-https://dsc.telkomsel.co.id/:20186242:zA#145@V
-https://dsc.telkomsel.co.id/:heningres:Jun#2021
-dsc.telkomsel.co.id:Pedrickpra:Senang2022@
-https://dsc.telkomsel.co.id:ariesat:Pss_1234
-https://dsc.telkomsel.co.id 17008946:/km#$
-https://dsc.telkomsel.co.id/:16009609:Sekar-123
-https://dsc.telkomsel.co.id/:19232993:bestcs2019@
-https://dsc.telkomsel.co.id:15011888:Ags2020#
-https://dsc.telkomsel.co.id/:15011686:Cantik*0418
-https://dsc.telkomsel.co.id:evatam:Support#0620
-https://dsc.telkomsel.co.id riyantha:Sheryn_0121
-dsc.telkomsel.co.id:Pedrickpra:Bahagia2020@
-https://dsc.telkomsel.co.id/app/my-account/my-billing:f.rafdiansyah@yahoo.com:883930
-https://dsc.telkomsel.co.id/:ariesat:Pss_4321
-https://dsc.telkomsel.co.id 18009683:t!Eb/%+p
-https://dsc.telkomsel.co.id/:17009551:R%ec$!PO
-https://dsc.telkomsel.co.id/:14010770:$(G7e7G
-https://dsc.telkomsel.co.id 15010954:zN$A-/or
-dsc.telkomsel.co.id/:12007687:Taqg%%Um
-https://dsc.telkomsel.co.id/:19183319:oxS$0-DB
-https://dsc.telkomsel.co.id/:17008576:Rezeki2020
-https://dsc.telkomsel.co.id 17010587:iUwf*9%Y
-https://dsc.telkomsel.co.id/:16012449:Myesha2018!**
-https://dsc.telkomsel.co.id 16000268:*2B}wj"0
-https://dsc.telkomsel.co.id/app/my-account/my-billing:fhmy_rafdiansyah@yahoo.com:883930
-https://dsc.telkomsel.co.id 20186218:S/@+@_vt
-https://dsc.telkomsel.co.id 16008109:d#fO--Ea
-https://dsc.telkomsel.co.id 17010397:nzZ-_=G!
-dsc.telkomsel.co.id/:28009470:m*vc$/kO
-https://dsc.telkomsel.co.id/:asrilwar:Jul#2020
-https://dsc.telkomsel.co.id 19231448:M|2wUDM3
-https://dsc.telkomsel.co.id/:19235327:Miracled!
-dsc.telkomsel.co.id:21189359:vh/L*2-$
-https://dsc.telkomsel.co.id/:YULIANTINI:Hajibjm#02
-https://dsc.telkomsel.co.id 19234554:W@k-6!CR
-https://dsc.telkomsel.co.id/:rudisir:Medan123
-https://dsc.telkomsel.co.id/:14010770:209[bo5M
-https://dsc.telkomsel.co.id:Budiset:Mkw#0321*
-dsc.telkomsel.co.id/:15009443:Jabar2104*
-dsc.telkomsel.co.id/:monitor:Lembong2020
-https://dsc.telkomsel.co.id 17010664:2x|saU6@
-https://dsc.telkomsel.co.id:18009949:3Cin91tU
-https://dsc.telkomsel.co.id/:19235173:Putenarsis!
-dsc.telkomsel.co.id:007057:H53r2"V8
+https://bos.kemdikbud.go.id/session:thonialwa38@gmail.com:mhd36
+https://bos.polri.go.id/login:67050677:67050677
+https://brainly.co.id/login:maria.1735020@bpkpenabur.sch.id:cantik170856
+https://brainly.co.id/signup:busnislaou:pandulaou99
+https://brivirtualdebit.id/signin:asih02025@gmail.com:P4ssw0rd!
+https://bsinet.bankbsi.co.id/cms/:86773880:masjidrwpj03
+https://bsudikti.kemdikbud.go.id/:201503051665@guruku.id:DSNU4
+https://bumame.cloud.co.id/:9184:Vera123
+https://cat.e-rohani.ssdm.polri.go.id/login:00090070:00090070
+https://cat.e-rohani.ssdm.polri.go.id/login:91100215:04101991
+https://cat.e-rohani.ssdm.polri.go.id/login:94060426:LO2H3DG4
+https://cat6-1.oba6-2023.edubox.id/site/login:arishariwindarto4@gmail.com:oba6-2023
+https://cbt.smkn2karimun.sch.id/adm/login:2102031708780005:2102031708780005
+https://cloud.jonasphoto.co.id/login:085322431588:231297desember
+https://cloud.smkniu.sch.id/index.php/login:posdayandu:Darings@j4
+https://cms.syam-ok.unm.ac.id/:210211502017:Salman2202
+https://connect.global.id/:RottenPotato:@Rj#n765
+https://cybercampus.unair.ac.id/:166221002:crowszero05
+https://cybercampus.unair.ac.id/sso/index.php:166221002:crowszero05
+https://dadageta.bogorkab.go.id/auth:kec.cileungsi@dadageta.id:dadageta_07
+https://daftar-pendataan-nonasn.bkn.go.id/login:2102031708780005:Pendataan01
+https://daftar-pendataan-nonasn.bkn.go.id/login:3201061403890006:mufcVR46
+https://daftar-pendataan-nonasn.bkn.go.id/login:3201071106980007:munajat66
+https://daftar-pendataan-nonasn.bkn.go.id/login:3201075502961001:Qory1502
+https://daftar-pendataan-nonasn.bkn.go.id/login:3201362101910001:Cileungsi1!
+https://daftar-pendataan-nonasn.bkn.go.id/login:3201363108990001:Suhendra31
+https://daftar-pendataan-nonasn.bkn.go.id/login:3521065407870001:@Suprax1
+https://daftar-sscasn.bkn.go.id/login:2102036912920001:291292
+https://daftar-sscasn.bkn.go.id/login:3204066303980004:Maret032398.
+https://daftar-sscasn.bkn.go.id/login:3207244804970002:doraemon
+https://daftar-sscasn.bkn.go.id/login:3275054611970010:dheana061197
+https://daftar-sscasn.bkn.go.id/login:3521141301730001:Ahmadbasuni#73
+https://daftar-sscasn.bkn.go.id/login:3672034301930001:Rita030194
+https://daftar-sscasn.bkn.go.id/login:3674015712850005:abilbilalzia
+https://daftar-sscasn.bkn.go.id/login:3674064211920003:11Riyanti
+https://daftar-sscasn.bkn.go.id/login:6402026410950001:2410Allahuakbar
+https://daftar.unism.ac.id/:S231677:P1692160987
+https://daftarin.kemkes.go.id/rekrutmen/login:6402026410950001:Allahuakbar
+https://dashboard-sdgs.kemendesa.go.id/:3507057110930001:3d0gaw4BSSB
+https://dashboard-sdgs.kemendesa.go.id/:3507191001850004:085606313831
+https://dashboard-sdgs.kemendesa.go.id/:3507191207670002:085909709625
+https://dashboard.durianpay.id/:info@mypangandaran.com:Ad1cakep@mypnd
+https://dashboard.prakerja.go.id/:lelisuharti07@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/daftar:agussaputro08badboy@gmail.com:badboy08
+https://dashboard.prakerja.go.id/daftar:arilisarilis85@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/daftar:devitavivi123@gmail.com:Devitazm0607_
+https://dashboard.prakerja.go.id/daftar:jeanrendy@gmail.com:zart2424
+https://dashboard.prakerja.go.id/daftar:lilisfatmawati451@gmail.com:Fatmawati123
+https://dashboard.prakerja.go.id/daftar:suharjahanggara@gmail.com:Harja123
+https://dashboard.prakerja.go.id/daftar:suhe41483@gmail.com:Suhe0407
+https://dashboard.prakerja.go.id/masuk:agussaputro008badboy@gmail.com:Agusbadboy08
+https://dashboard.prakerja.go.id/masuk:arilisarilis85@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:daraaulia0804@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:denbudie@gmail.com:*-*.qkamalann151
+https://dashboard.prakerja.go.id/masuk:dwialawiyah023@gmail.com:Dewi0307
+https://dashboard.prakerja.go.id/masuk:eemil4896@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:gegederawing@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:hanramdani212@gmail.com:Han212
+https://dashboard.prakerja.go.id/masuk:ismetapabunda@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:izalhendrizal336@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:khairulhadi64@gmail.com:Zoldyck02
+https://dashboard.prakerja.go.id/masuk:mediarona71@gmail.com:Zoldyck02
+https://dashboard.prakerja.go.id/masuk:popiizati16@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:rahmathidayat10062001@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:rikinovera9@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:robimihardi891@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:rolanputra123@gmail.com:sukro123
+https://dashboard.prakerja.go.id/masuk:roziagustian0@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:ryanjugadio@gmail.com:pasker23
+https://dashboard.prakerja.go.id/masuk:sa211542@gmail.com:aisah234
+https://dashboard.prakerja.go.id/masuk:salsabilabalqis2607@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:syifa.mypangandaran@gmail.com:B1smillah
+https://dashboard.prakerja.go.id/masuk:vivivransiska630@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:yurniyurni256@gmail.com:rabu23maret
+https://dashboard.prakerja.go.id/masuk:zamzamMZN1809@gmail.com:zamzam1809
+https://dashdrakor.my.id/:Nova:Jenongjelek99
+https://datadesacenter.dpmd.jatimprov.go.id/login:3507220002:78712NDAN
+https://datapokok.unnes.ac.id/:201503051665:02081991
+https://devdaftarin.kemkes.go.id/rekrutmen/login:putriandinitanjung@gmail.com:Allahuakbar
+https://digikel.gorontalokota.go.id/:gustamin:12345678
+https://digiloan.bankjateng.co.id/main/loginPage:faisal.ahmad@bankjateng.co.id:Delanggu123!!
+https://digit.kemenkeu.go.id/login:196611281994031003:P4ssw0rd!
+https://digit.kemenkeu.go.id/login:198208042007102002:P4ssword!
+https://digit.kemenkeu.go.id/login:3521142901850001:Pamungk45!
+https://digit.kemenkeu.go.id/oauth2:196812111991031004:P4ssword!
+https://digit.kemenkeu.go.id/oauth2:197705062007012035:P4ssword!
+https://digit.kemenkeu.go.id/oauth2:197709042007012022:P4ssw0rd!
+https://digit.kemenkeu.go.id/oauth2:198112282014111003:Digit22!
+https://digit.kemenkeu.go.id/oauth2:3521064105960002:Can#420019
+https://digit.kemenkeu.go.id/oauth2/registrasi:wibowodanu66@gmail.com:P4ssw0rd!
+https://digital.pegadaian.co.id/:seno.pamungk45@gmail.com:Musthaf4
+https://dispar.pangandarankab.go.id/moal-dibejaan/:purnama:kanpekienopasu
+https://djponline.pajak.go.id/account/login:00.160.855.3-654.000:123456
+https://djponline.pajak.go.id/account/login:001369081403000:kalahitam
+https://djponline.pajak.go.id/account/login:001608553654000:123456
+https://djponline.pajak.go.id/account/login:092094945403000:rivaasroma1972
+https://djponline.pajak.go.id/account/login:148876576215000:141319ngiyahow
+https://djponline.pajak.go.id/account/login:248366932403000:123456789
+https://djponline.pajak.go.id/account/login:313016750432000:Gading01
+https://djponline.pajak.go.id/account/login:343454872403000:irwantajarudin
+https://djponline.pajak.go.id/account/login:354239303403000:ikin212
+https://djponline.pajak.go.id/account/login:361912512436000:ABIMANYU
+https://djponline.pajak.go.id/account/login:444490056403000:197309182010
+https://djponline.pajak.go.id/account/login:54.444.353.4-436.000:aliridwan123
+https://djponline.pajak.go.id/account/login:670793181404000:kasipkm1
+https://djponline.pajak.go.id/account/login:718754229403000:197304092010
+https://djponline.pajak.go.id/account/login:726044233646000:14071987
+https://djponline.pajak.go.id/account/login:756129201403000:litaandrida
+https://djponline.pajak.go.id/account/login:79.419.904.2-403.000:Cileungsi1
+https://djponline.pajak.go.id/account/login:810786152432000:wikaserpan
+https://djponline.pajak.go.id/account/login:811538164515000:wijayanti
+https://djponline.pajak.go.id/account/login:812000446442000:Ad1cakep@mypnd
+https://djponline.pajak.go.id/account/login:830692950506000:ifa090481
+https://djponline.pajak.go.id/account/login:903635175646000:purwanto22
+https://djponline.pajak.go.id/account/login:917377418728000:24101995
+https://djponline.pajak.go.id/account/login:980396105202000:khairulhadi
+https://djponline.pajak.go.id/account/registrasi:54.444.353.4-436.000:aliridwan123
+https://djponline.pajak.go.id/account/registrasi:69.922.601.5-119.000:t23o2n82ispt
+https://djponline.pajak.go.id/account/ubahpassword:fitriaisyah4474@gmail.com:fitri1969
+https://djponline.pajak.go.id/account/ubahpassword:mr82alwathoni@gmail.com:t23o2n82ispt
+https://djponline.pajak.go.id/registrasi:713735504013000:zart2424
+https://djponline.pajak.go.id/resetpass:786612176223000:05032016
+https://dli.mydigilearn.id/pages/signup:firdaus.m@wika.co.id:Gading01
+https://dors.sops.polri.go.id/login:KABAGDALOPSPOLDAJABAR:Poldajabar123_
+https://dors1.sops.polri.go.id/:KASPKTPOLDAJABAR:spktlodaya
+https://dpmd.bogorkab.go.id/auth:3201072003@dpmd.bogorkab.go.id:dpmdbogor
+https://dpmd.bogorkab.go.id/auth:320107@dpmd.bogorkab.go.id:dpmdbogor
+https://e-ipo.co.id/en/login:itsarifutama@gmail.com:LancarjayA1@
+https://e-katalog.lkpp.go.id/user/login:LODAYABINTANG:Lodaya@2022
+https://e-learning.untan.ac.id/learning/login/index.php:D1041211076:p1a2n3d4u5
+https://e-learning.untan.ac.id/learning/login/index.php:D1041211076:pandulaou
+https://e-learning.untan.ac.id/learning/login/index.php:d1041211076:Y37O50H
+https://e-meterai.co.id/:ritanovita0301@gmail.com:sayang030194
+https://e-monev.bappenas.go.id/2020/:K8_424600:P4ssword!
+https://e-monev.kemenkeu.go.id/pages/login:417802:SBSN2023
+https://e-perizinan.batubarakab.go.id/login:tkaaba4tanjungtiram91699801@gmail.com:12345678
+https://e-rekon-lk.kemenkeu.go.id/login:196601011998031001:196601011998031001
+https://e-rekon-lk.kemenkeu.go.id/login:3521142901850001:3521142901850001
+https://e.smartsdasbc.sch.id/login/index.php:@068:9999
+https://ecampus.binainsani.ac.id/binainsani/pages/main/sub_main.zul:2021310171:tomyfirst
+https://efaktur.pajak.go.id/login:018026914064000:M394JTC3
+https://efaktur.pajak.go.id/login:313016750432000:ptemsaoke
+https://efaktur.pajak.go.id/login:812000446442000:6KKXJ0KQ
+https://ejournal.uluwiyah.ac.id/index.php/taawun/user/register:MohammadRidwan:kpkd5K7hsEUPDpQ
+https://elearning.ut.ac.id/:042226166:Devitazm0607_
+https://elearning.ut.ac.id/login/index.php:042220703:aldo1234
+https://elearning.ut.ac.id/login/index.php:042226166:Devitazm0607_
+https://elhkpn.kpk.go.id/portal/user/login:3318104201880004:Kpudemak1@
+https://elpt.pusatbahasa.unair.ac.id/auth/login:166221002:crowszero05
+https://emadrasah.kemenag.go.id/verval/:121135210010:123456
+https://emis.kemenag.go.id/login:Jumliamunawarah@gmail.com:Duh#jS13
+https://emis.kemenag.go.id/login:mtsnbabadankab.ngawi@gmail.com:Maestr0#
+https://emis.kemenag.go.id/login:rinamadiun2015@gmail.com:Lembaga123456*
+https://ephtbnotarisppat.pajak.go.id/login:79.419.904.2-403.000:cileungsi1
+https://epupns.bkn.go.id/login:Q3X4ANRP:ahmadzailani
+https://epupns.bkn.go.id/login:ZZKQB78P:qwerty160700
+https://ereg.pajak.go.id/login:650344179215000:popy0607
+https://ereg.pajak.go.id/login:947559951655000:badboy08
+https://ereg.pajak.go.id/login:agussaputro08badboy@gmail.com:badboy08
+https://ereg.pajak.go.id/login:popyizzati765@gmail.com:popy0607
+https://ereg.pajak.go.id/pendaftaran/ZiR2L52AkvGhsTGL06Kg:ajadahrizky@gmail.com:terserahlu1
+https://es.bpjsketenagakerjaan.go.id/sso/login.bpjs:3174101701900004:242424
+https://espm.kemenkeu.go.id/login:JT7FE7UCW3424600:bendahar4
+https://espm.kemenkeu.go.id/login:JWE9XRGXC1424600:p4ssw0rd!
+https://esppt.id/simpbb/login:3507190002:malang2023
+https://ews.sops.polri.go.id/account/login:00060294:00060294
+https://ews.sops.polri.go.id/account/login:01010981:01010981
+https://ews.sops.polri.go.id/account/login:03050495:dalops
+https://ews.sops.polri.go.id/account/login:86030220:EVALANTAS
+https://ews.sops.polri.go.id/account/login:87041615:87041615
+https://ews.sops.polri.go.id/account/login:94040203:94040203
+https://ews.sops.polri.go.id/account/login:98040525:98040525
+https://ews.sops.polri.go.id/account/login:98070014:98070014
+https://ews.sops.polri.go.id/account/login:98090206:98090206
+https://ews.sops.polri.go.id/account/login:EVALANTAS:EVALANTAS
+https://ews.sops.polri.go.id/account/login:polresbanjar:polresbanjar
+https://ews.sops.polri.go.id/account/login:polresbogor:polresbogor
+https://ews.sops.polri.go.id/account/login:polrescimahi:polrescimahi
+https://ews.sops.polri.go.id/account/login:polreskarawang:polreskarawang
+https://ews.sops.polri.go.id/account/login:polrespangandaran:polrespangandaran
+https://ews.sops.polri.go.id/account/login:polrestabandung:Restabdg12_
+https://ews.sops.polri.go.id/account/login:polrestabesbandung:polrestabesbandung
+https://ews.sops.polri.go.id/account/login:polrestabogorkota:polrestabogorkota
+https://ews.sops.polri.go.id/account/login:polrestasikmalaya:polrestasikmalaya
+https://ews.sops.polri.go.id/account/login:subsatgasdokkes:subsatgasdokkes
+https://ews.sops.polri.go.id/user_management/register/edit/419055:081322208976:97010203
+https://ews1.sops.polri.go.id/public/landing_page:EVALANTAS:EVALANTAS
+https://ews1.sops.polri.go.id/public/landing_page:KABAGDALOPSPOLDAJABAR:Poldajabar123_
+https://exam1.fhcibumn.id/index.php:firdausadi40@gmail.com:343020
+https://flip.id/login:khairulhadi64@gmail.com:rabu23maret
+https://fotohokkie.id/login:+6281222089681:Sukseslancar2024
+https://gis.co.id/:zaidsulthan14@gmail.com:Herini02
+https://gsms.kemdikbud.go.id/auth/login:awabkeyboardis99@gmail.com:qwerty140879
+https://hasilun.puspendik.kemdikbud.go.id/akm/simulasi_akm/login:P130100230:DHND*
+https://hebat.elearning.unair.ac.id/login/:166221002:crowszero05
+https://hebat.elearning.unair.ac.id/login/index.php:166221002:crowszero05
+https://hebat2.elearning.unair.ac.id/login/index.php:166221002:crowszero05
+https://helpdesk.kpu.go.id/:helpdesk_kab_demak:[NOT_SAVED]
+https://humanitarian.id/:temeogobelem@yahoo.fr:yendoumasogol1974
+https://humanitarian.id/register:TEME:mqJ4@H8mJK9eU8N
+https://ib.bankmandiri.co.id/retail/Login.do:bhendoe69:883311
+https://ibank.bankmandiri.co.id/retail3/loginfo/loginRequest:mocham1985:3d0gaw4BSSB
+https://ibank.bankmandiri.co.id/retail3/loginfo/performLoginExecute:firdausadi40:Gading01
+https://ibank.bni.co.id/:Ravindra31:crowszero05
+https://id.hub.kemdikbud.go.id/sso/auth/:thonialwa38@gmail.com:mhd36
+https://idm.kemendesa.go.id/login:320107:idm-kemendesa_2022
+https://idm.kemendesa.go.id/login:320107:idm-kemendesa_2023
+https://idm.kemendesa.go.id/login:3507192002:idm-kemendesa_2023
+https://ig.informatikamu.id/member:baju_dalam_wanita1:JANG123MINSIL
+https://ig.informatikamu.id/member:jubir_99:taik123kau
+https://ig.informatikamu.id/member:yohakim321:yohakim123
+https://igracias.telkomschools.sch.id/ts/login/:3103190394:3103190394
+https://indihome.co.id/verifikasi-layanan/login:jeanrendy@gmail.com:zart2424
+https://info.gtk.kemdikbud.go.id/:0262760661300053:19820930
+https://info.gtk.kemdikbud.go.id/:ayabrup@gmail.com:123456
+https://info.gtk.kemdikbud.go.id/:jihadsoldiers128@gmail.com:@Agus1234
+https://info.gtk.kemdikbud.go.id//:alwathoni82mr@gmail.com:1234567890
+https://inteliz.kejaksaan.go.id/login:198901072014031002:61489358
+https://inteliz.kejaksaan.go.id/login:DirektoratB:Qwerty123
+https://inteliz.kejaksaanri.id/login:198901072014031002:61489358
+https://internationaladmissions.umy.ac.id/login:229420516:796923
+https://jakevo.jakarta.go.id/login:ajadahrizky@gmail.com:terserahlu
+https://jakevo.jakarta.go.id/register:deaamaliasusanto@gmail.com:Jeanrs17
+https://jaklat.jakarta.go.id/login:3175053007760004:password
+https://jayapurakab.fmis.id/2023/:ofir:satgas2023
+https://jayapurakab.sipd.kemendagri.go.id/daerah:196406241996101001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/daerah:tapdkeuangan:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196401241986031015:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196508121986031031:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196508271995031001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196511211987091001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196512301993031009:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196604131994031013:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196606071996102001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196608101996101002:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196706021992011001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196808281997121001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196810241996101001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196812051990111001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:196912311997121001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:197006281989081001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:197109031998021001:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:197205161992031007:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:197407171993111005:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:197511262000031006:jayapurakab
+https://jayapurakab.sipd.kemendagri.go.id/siap/login:198201122008011010:jayapurakab
+https://jdmlm.ub.ac.id/index.php/jdmlm/user/registerUser:seddiki:dn00195900
+https://jelita.bogorkab.go.id/lhkp/:198006202002121002:9BOGORKAB15
+https://jelita.bogorkab.go.id/lhkp/site:197102032002121003:19710203
+https://jelita.bogorkab.go.id/lhkp/site:198006202002121002:9BOGORKAB15
+https://jelita.bogorkab.go.id/v2/:19806202002121002:ikin212
+https://jelita.bogorkab.go.id/v2/:198212032001121002:cileungsi1
+https://jobseeker.kalibrr.id/login:jeanrendy@gmail.com:zart2424
+https://kampus.techfor.id/:giof2612@gmail.com:gio1234567890
+https://kbbi.kemdikbud.go.id/Account/Register:ayabrup@gmail.com:Kbbid4ring
+https://kedaisosmed.id/auth/login:tulussy:tulus1234
+https://kip-kuliah.kemdikbud.go.id/siswa/auth/login:1121.301.08753.1656.142:5e4b55
+https://kip-kuliah.kemdikbud.go.id/siswa/auth/login:1122.206.07836.1603.215:438a86
+https://knb.kemdikbud.go.id/:tayyabjaved992@gmail.com:3610378549323
+https://konsesijasa.bpjt.pu.go.id/asetbpjt/:wijaya_karya_sp:wijaya_karya_sp!!@#
+https://ktmcuti.untan.ac.id/:D1041211076:p1a2n3d4u5
+https://ktmcuti.untan.ac.id/:D1041211076:pandulaou
+https://kursusdigital.id/asup/:ahans.bisnis@gmail.com:Ahans0901
+https://layanan.pln.co.id/infohistoripln.html:Syifa.mypangandaran@gmail.com:B1smillah
+https://ldiibekasikota.or.id/sukma/:user_pac:testPAC123
+https://lelang.go.id/accounts/login:gustu.amandangi@gmail.com:Necromancer03
+https://litapdimas.kemenag.go.id/:ridwan@lecturer.uluwiyah.ac.id:ULUWIYAH
+https://lkpmonline.bkpm.go.id/lkpm_perka17/login.jsp:wijaya2698:1234
+https://lms.asbc.sch.id/auth:21210854:21210854
+https://lms.trisakti.ac.id/:ajadahrizky@gmail.com:091102
+https://lms.trisakti.ac.id/login/index.php:ajadahrizky@gmail.com:091102
+https://lms.unindra.ac.id/kelola/login:aswinkelola:ABC123456
+https://lpse.acehutara.go.id/eproc4/loginpass:sapriperkim:@1Prkp24
+https://lpse.bogorkab.go.id/eproc4/loginpass:ADHI_NUGRAHA:oj6(fJ1%
+https://lpse.bogorkab.go.id/eproc4/loginpass:EMAN:p"83Ed'6
+https://lpse.bogorkab.go.id/eproc4/loginpass:YUSUF.NUGRAHA:81ai&L)E
+https://lpse.lkpp.go.id/eproc4/loginpass:ANNI_PPNGAWI:Bwq4v#)0
+https://lpse.lkpp.go.id/eproc4/loginpass:DANU_PPK424600:57l$B&7A
+https://lpse.lkpp.go.id/eproc4/loginpass:NURSIWI_PPK424600:3r'T2$Am
+https://lpse.lkpp.go.id/eproc4/loginpass:YUSUF.NUGRAHA:81ai&L)E
+https://m.elevenia.co.id/login.do:jeanrendy@gmail.com:zart2424
+https://m.kaskus.co.id/forum/577/android/:denbagus:*-*.qkamalann151
+https://m.olx.co.id/masuk/:denbudie@gmail.com:*-*.qkamalann
+https://m.ottencoffee.co.id/register:diojugaryan@gmail.com:pasker23
+https://m.shopback.co.id/:rulnrona@gmail.com:rabu23maret
+https://maezafashion.my.id/wp-login.php:Maeza:Sukseslancar2023
+https://mahasiswa.presensi.untan.ac.id/:D1041211076:p1a2n3d4u5
+https://mahasiswa.presensi.untan.ac.id/:D1041211076:pandulaou
+https://mahasiswa.siakad.untan.ac.id/:D1041211076:p1a2n3d4u5
+https://mahasiswa.siakad.untan.ac.id/:D1041211076:pandulaou
+https://mahasiswa.unair.ac.id/:162212433002:crowszero05
+https://mahasiswa.unair.ac.id/:166221002:crowszero05
+https://mail.kemenag.go.id/:196611281994031003:196611281994031003
+https://mail.kemenag.go.id/:196812111991031004@kemenag.go.id:ASN004111268
+https://mail.kemenag.go.id/:197705062007012035@kemenag.go.id:ASN0350605
+https://mail.kemenag.go.id/:197709042007012022@kemenag.go.id:Cantik77
+https://malangkab.sipd.kemendagri.go.id/daerah:DJUMAIN:malangkab
+https://map.netwatch.id/:KaplengNew:kpl2023gx4
+https://map.netwatch.id/:monitoring:pantaumodem123
+https://mcm2.bankmandiri.co.id/corporate/:MYPANGANDARAN:MYpnd123
+https://mcm2.bankmandiri.co.id/corporate/:serpan:Serpan2020
+https://mcm2.bankmandiri.co.id/corporate/:serpan:Serpan2022
+https://member-m.lazada.co.id/user/login:denbudie@gmail.com:*-*.qkamalann151
+https://member.lazada.co.id/user/login:085812484035:devitazm
+https://member.lazada.co.id/user/login:denbudie@gmail.com:*-*.qkamalann151
+https://member.sarangdigital.id/member-area/login:pman.drugstone28@gmail.com:Drugstone28
+https://members.tunnel.my.id/login:multiakses81@gmail.com:bartunel99
+https://merek.dgip.go.id/daftar-online:tulusmeme@gmail.com:Semangat98
+https://mib.bankmandiri.co.id/sme/common/login.do:MYPANGANDARAN:MYpnd123
+https://mocilegit.sukabumikota.go.id/login:3272040901000001:Emhandani91
+https://monsakti.kemenkeu.go.id/dist/app/:420019:63639696
+https://monsakti.kemenkeu.go.id/dist/app/:424600:49089094
+https://mpn.kemenkeu.go.id/index.php/register:MTsN2NGAWI:P4ssw0rd!
+https://mtsn2.kemenagngawi.or.id/login:121135210010:121135210010
+https://mtsn2ngawi.rdmkabngawi.my.id/:121135210010:Rdmmtsn2ngawi
+https://my-sams.ft.unm.ac.id/:210211502017:Salman2202
+https://my.biznet.id/sign-in:118300985004:535226
+https://my.indihome.co.id/register/account-details:info@mypangandaran.com:Ad1cakep@mypnd
+https://my.smartlegal.id/signup:mtsn2ngawikab.ngawi@gmail.com:p4ssword!
+https://my.telkom.co.id/login.php:yamiryu:tokageroh
+https://mydigilearn.id/login:firdaus.m@wika.co.id:Gading01
+https://myih.telkom.co.id/login/email/password:check-coverage--map:083184329460:Rabu23maret
+https://myjobstreet-id.jobstreet.co.id/home/login.php:gustu.amandangi@gmail.com:Necromancer03
+https://myjobstreet-id.jobstreet.co.id/home/login.php:jeanrendy@gmail.com:Zart2424
+https://myjobstreet.jobstreet.co.id/home/login.php:gustu.amandangi@gmail.com:Necromancer03
+https://myjobstreet.jobstreet.co.id/home/login.php:jeanrendy@gmail.com:Zart2424
+https://mylms.telkomschools.sch.id/login/index.php:20188159tsjkt:20188159@SMKTelkom2020
+https://mysapk.bkn.go.id/:197404062006042013:Dewi1974
+https://mysapk.bkn.go.id/:198006202002121002:Ikin212*
+https://mysapk.bkn.go.id/:198202232010011013:t23o2n82ibkn
+https://mysapk.bkn.go.id/:198707142023212043:P4ssword!
+https://mysapk.bkn.go.id/:Q3X4ANRP:ahmadzailani
+https://myskill.id/bootcamp:081257833415:p1a2n3d4u5
+https://myskill.id/bootcamp:d1041211076@student.untan.ac.id:p1a2n3d4u5
+https://novel.firan.id/register/:fantasikreatif.9248@gmail.com:(@$*fts9248kts
+https://nuansaimagine.my.id/:human:password
+https://nuansaimagine.my.id/mypangandaran/:NuansaSukses:Sukseslancar2024
+https://omb-eoffice.polri.go.id/login:08asiapuma@gmail.com:96040808
+https://omb-eoffice.polri.go.id/login:kaopres_sukabumikota_jabar@polri.go.id:83011155
+https://omb-eoffice.polri.go.id/login:kaopsda_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/login:kaopsres_bogor_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/login:kaopsres_cianjur_jabar_omb@polri.go.id:cianjur123
+https://omb-eoffice.polri.go.id/login:minkaopsda_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/login:minopres_sukabumikota_jabar@polri.go.id:02020488
+https://omb-eoffice.polri.go.id/login:minopsres_bogor_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/login:minopsres_cimahi_jabar@polri.go.id:password
+https://omb-eoffice.polri.go.id/login:minsatgaspreventif@polri.go.id:password
+https://omb-eoffice.polri.go.id/login:minsatgasrespreventif_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/login:oprsubsatgasbanopsdokkes_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/login:oprsubsatgasintel_jabar@polri.go.id:password
+https://omb-eoffice.polri.go.id/login:oprsubsatgaslogistikjabar_omb@gmail.com:02021244
+https://omb-eoffice.polri.go.id/login:oprsubsatgaspeliputan_jabar_omb@polri.go.id:00060294
+https://omb-eoffice.polri.go.id/login:oprsubsatgaspidum_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/login:satgasres_preventif_cimahi_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/user:OPSRES_BANJAR_JABAR_OMB@polri.go.id:password
+https://omb-eoffice.polri.go.id/user:OPSRES_CIMAHI_JABAR_OMB@polri.go.id:password
+https://omb-eoffice.polri.go.id/user:kaanevopsda_jabar_omb@polri.go.id:78080046
+https://omb-eoffice.polri.go.id/user:kaminopsda_jabar_omb@polri.go.id:78080046
+https://omb-eoffice.polri.go.id/user:kaopsresbogor_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/user:kasatgas2preventif_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/user:kasatgasopsda_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/user:kawasopsda_jabar_omb@polri.go.id:password
+https://omb-eoffice.polri.go.id/user:opranevopsda2@gmail.com:password
+https://omb-eoffice.polri.go.id/user:opranevopsda_omb@polri.go.id:Password
+https://omb-eoffice.polri.go.id/user:oprsatgaspreventif_jabar_omb@polri.go.id:password
+https://omb
