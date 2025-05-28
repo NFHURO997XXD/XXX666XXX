@@ -1,0 +1,209 @@
+<!DOCTYPE html>
+<html lang="">
+<head>
+ <link rel="icon" href="https://d.top4top.io/p_3435hkw4r1.png" type="image/x-icon"/>
+    <meta charset="UTF-8">
+    <title>TOUCHED BY FIDZXPLOIT INDOHAXSEC TEAM</title>
+    <meta name="Author" content=""/>
+    <style>
+        body {
+            margin: 0;
+            padding: 0;
+            background: black;
+            color: white;
+            font-family: sans-serif;
+            font-size: 1rem;
+            user-select: none;
+        }
+        * { margin: 0; padding: 0; }
+
+        .red {
+            color: red;
+            text-shadow: 0px 3px 2px darkred;
+        }
+
+        .particle, .ball--one, .ball--two, .ball--three, .ball--five, .ball--six {
+            position: fixed;
+            top: 0;
+            left: 0;
+            width: 100%;
+            height: 100vh;
+            z-index: 9999;
+            overflow: hidden;
+        }
+
+        .ball--one, .ball--two, .ball--three, .ball--five, .ball--six {
+            border-radius: 50%;
+            content: " ";
+            position: absolute;
+            background: transparent;
+        }
+
+        .ball--one { width: 3px; height: 3px; animation: animStar 150s linear infinite; }
+        .ball--two { width: 3px; height: 3px; animation: animStar3 10s linear infinite; }
+        .ball--three { width: 2px; height: 2px; animation: animStar 50s linear infinite; }
+        .ball--four { width: 3px; height: 3px; animation: animStar2 80s linear infinite; }
+        .ball--five { width: 5px; height: 5px; animation: animStar5 80s linear infinite; }
+        .ball--six { width: 7px; height:7px; animation: animStar6 80s linear infinite; }
+
+        @keyframes animStar { 0% { transform: translateY(0px); } 100% { transform: translateY(-2000px); } }
+        @keyframes animStar2 { 0% { transform: translateX(0px); } 100% { transform: translateX(-2000px); } }
+        @keyframes animStar3 { 0% { transform: translateY(0px); } 100% { transform: translateY(-2000px); } }
+        @keyframes animStar5 { 0% { transform: translateX(0px); } 100% { transform: translateX(2000px); } }
+        @keyframes animStar6 { 0% { transform: translateY(0px); } 100% { transform: translateY(2000px); } }
+
+        .resimler {
+            width: 100%;
+            height: 100vh;
+            position: fixed;
+            z-index: 98;
+            top: 0;
+            left: 0;
+            display: flex;
+            align-items: center;
+            justify-content: center;
+            flex-direction: column;
+        }
+
+        .resimler img {
+            object-fit: cover;
+            width: 100%;
+            height: 100vh;
+        }
+
+        @keyframes haraketli {
+            0% { width: 100%; height: 100vh; }
+            25% { width: 101%; height: calc(100vh + 1%); }
+        }
+
+        .con {
+            background: rgb(0, 0, 0,.5);
+            position: fixed;
+            z-index: 999999;
+            width: 100%;
+            height: 100vh;
+            overflow: hidden;
+            display: flex;
+            align-items: center;
+            justify-content: center;
+            flex-direction: column;
+        }
+
+        .con.active { animation: spect 4s infinite; }
+        .resimler img.active { animation: haraketli 2s infinite; }
+
+        @keyframes spect {
+            0% { background: rgb(0, 0, 0,.5); }
+            15% { background: rgb(0, 0, 0,.7); }
+            25% { background: rgb(0, 0, 0,.7); }
+            45% { background: rgb(0, 0, 0,.5); }
+            75% { background: rgb(0, 0, 0,.8); }
+            100% { background: rgb(0, 0, 0,.5); }
+        }
+
+        .con .header, .con .main { text-align: center; }
+        .con .header img.logo {
+            vertical-align: middle;
+            height: 6em; /* LOGO DIPERBESAR */
+            margin-right: 10px;
+        }
+
+        .con .header img.turkey-flag {
+            width: 200px;
+            margin-top: -150px;
+        }
+
+        .header-title {
+            display: flex;
+            align-items: center;
+            justify-content: center;
+            margin-top: 20px;
+        }
+
+        .header-title h1 {
+            font-size: 1.8em;
+            text-shadow: 1px 1px 20px black;
+        }
+
+        .con .main .text {
+            font-size: 16px; /* DIPERKECIL DARI 20px */
+            margin-top: 20px;
+            text-shadow: 1px 1px 20px black;
+            font-weight: normal; /* DIBUAT TIDAK TEBAL */
+        }
+
+        .area {
+            width: 80%;
+            position: relative;
+        }
+
+        @media (max-width: 750px) {
+            .area { width: 90%; }
+        }
+
+        .play-button {
+            margin-top: 20px;
+            text-align: center;
+        }
+
+        .play-button button {
+            padding: 6px 12px;
+            font-size: 14px;
+            background: red;
+            color: white;
+            border: none;
+            border-radius: 4px;
+            cursor: pointer;
+        }
+
+    </style>
+</head>
+<body>
+
+<!-- dots -->
+<div class="particle">
+    <div class="ball--one"></div>
+    <div class="ball--two"></div>
+    <div class="ball--three"></div>
+    <div class="ball--four"></div>
+    <div class="ball--five"></div>
+    <div class="ball--six"></div>
+</div>
+
+<div class="resimler">
+    <img src="https://wallpaper.dog/large/10724665.png" alt="siber tank." class="resim">
+</div>
+
+<div class="con">
+   <div class="area">
+        <div class="header">
+            <audio id="lagu" src="https://nathanprinsley-files.prinsh.com/data-1/mp3/jeremy-flick_anonymous.mp3" loop></audio>
+            <img src="https://c.tenor.com/3WzehOPlvHoAAAAd/tenor.gif" class="turkey-flag" alt="Turkey">
+            
+            <!-- Logo + Judul -->
+            <div class="header-title">
+                <img src="https://b.top4top.io/p_3435fajzs1.png" alt="Logo" class="logo">
+                <h1><span class="red">SEIZED BY FIDZXPLOIT<br>INDOHAXSEC TEAM</span></h1>
+            </div>
+        </div>
+        <div class="main">
+            <h4 class="text"><br>OUR SUPPORT WILL CONTINUE FOR PAKISTAN<br>WAIT FOR THE DESTRUCTION OF YOUR CYBER SPACE INDIA!,WE WILL CONTINUE TO TARGET YOUR COUNTRY...</h4>
+
+            <!-- Tombol Play di bawah teks -->
+            <div class="play-button">
+                <button onclick="playMusic()">Play</button>
+            </div>
+        </div>
+    </div>
+</div>
+
+<script>
+    const audio = document.getElementById("lagu");
+
+    function playMusic() {
+        audio.play();
+    }
+</script>
+
+</body>
+</html>
