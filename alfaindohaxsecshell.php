@@ -294,12 +294,12 @@ $GLOBALS['__ALFA_COLOR__'] = array(
 		"main_size" => "#FFC0CB",
 		"main_modify" => "#FFC0CB",
 		"main_owner_group" => "#FFC0CB",
-		"main_green_perm" => "#25ff00",
-		"main_red_perm" => "#FF0000",
-		"main_white_perm" => "#FFFFFF",
-		"beetween_perms" => "#FFFFFF",
+		"main_green_perm" => "#FFC0CB",
+		"main_red_perm" => "#FFC0CB",
+		"main_white_perm" => "#FFC0CB",
+		"beetween_perms" => "#FFC0CB",
 		"main_actions" => array(
-			"key_color" => "#FFFFFF",
+			"key_color" => "#FFC0CB",
 			"multi_selector" => array(
 				".main .actions" => "color: {color};",
 			)
